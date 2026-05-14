@@ -1,4 +1,4 @@
-#  
+#  ultimate Script for blox fruits is the best blox fruits Script, featuring god mode and no clip. Safe and powerful for all your needs.
 
 
 
